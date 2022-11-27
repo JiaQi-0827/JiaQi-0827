@@ -1,4 +1,4 @@
-### Yoo, I'm Jiaqi 👋
+### Hi, I'm Jiaqi 👋
 
 **languages and tools:** 
 
